@@ -1,4 +1,4 @@
-# 
+# Automático ProtonVPN predefinições para Mac OS | Ultimato ProtonVPN predefinições para PC Windows. Com proteção de e-mail e sistema de plugins — otimizado para máximo desempenho em cada plataforma.
 
 
 
